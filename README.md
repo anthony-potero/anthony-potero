@@ -6,4 +6,4 @@
 
 <p align= "center" 
 
-[strawpage](https://doctorrchase.straw.page)⠀[ata](https://clickforfreemoney.atabook.org)⠀[rentry](https://rentry.co/patbatemann)⠀<img src= "https://files.catbox.moe/d3l98g.png" width= "20" height= "auto">
+[strawpage](https://doctorrchase.straw.page)⠀[新book](https://clickforfreemoney.atabook.org)⠀[rentry](https://rentry.co/patbatemann)⠀<img src= "https://files.catbox.moe/d3l98g.png" width= "20" height= "auto">
