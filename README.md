@@ -7,3 +7,9 @@
 <p align= "center" 
 
 [strawpage](https://doctorrchase.straw.page)⠀[新book](https://clickforfreemoney.atabook.org)⠀<img src= "https://files.catbox.moe/t0pld1.png" width= "20" height= "auto">⠀[rentry](https://rentry.co/patbatemann)⠀[pt rentry](https://rentry.co/anthpoo)
+
+<p align= "center"
+
+  <br/>
+  <br/>
+<sub> HEY! YOU! Do YOU wanna be in a Bunch of Friends friendgroup and NOT have FOMO (like us too)? Check [THIS](https://bunchofauditions.straw.page) out! </sub>
