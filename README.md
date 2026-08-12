@@ -10,6 +10,4 @@
 
 <p align= "center"
 
-  <br/>
-  <br/>
-<sub> HEY! YOU! Do YOU wanna be in a Bunch of Friends friendgroup and NOT have FOMO (like us two)? Check [THIS](https://bunchofauditions.straw.page) out! </sub>
+  <sub> HEY! YOU! Do YOU wanna be in a Bunchof Friends friendgroup and NOT have FOMO (like us two)? Check [THIS](https://bunchofauditions.straw.page) out! </sub>
